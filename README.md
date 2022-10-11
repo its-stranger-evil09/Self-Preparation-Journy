@@ -1,1 +1,1 @@
-# Self-Preparation-Journy
+# Self-Preparation-Journey
